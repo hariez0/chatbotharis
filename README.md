@@ -5,7 +5,9 @@ Baker:
 Mr. AIMAN BOTAK (Exquisite 7-star Michelin star bakery chef)
 
 Time open:
-Everyday from 9am to 6pm (Except sunday)
+Monday - Friday from 7am - 6pm 
+Saturday from 8am - 4pm
+Sunday (Closed)
 
 Website Link:
 ([https://decadent-delights-bakery-xqh192c.gamma.site/)
