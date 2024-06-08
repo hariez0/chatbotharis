@@ -8,7 +8,7 @@ Time open:
 Everyday from 9am to 6pm (Except sunday)
 
 Website Link:
-([https://chocolatemint-cakes-kijjl6g.gamma.site/])
+([https://decadent-delights-bakery-xqh192c.gamma.site/)
 
 Location:
 Street - Jalan Tinju 13/50, Seksyen 13, 40100 Shah Alam
